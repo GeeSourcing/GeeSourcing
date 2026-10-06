@@ -35,4 +35,3 @@ Founded in 2021, GeeSourcing is based in Yiwu, Zhejiang, China.
 
 ---
 
-*Practical sourcing support from supplier selection through quality control and fulfillment.*
